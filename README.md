@@ -1,0 +1,2 @@
+# Meu-script-
+Free emotes 
